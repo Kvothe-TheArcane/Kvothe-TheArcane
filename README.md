@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kvothe-TheArcane;
-- 👀 I’m interested in learning new languages, photography and anime;
+- 👀 I’m interested in learning new languages(mostly Japanese), photography and anime;
 - 🌱 I’m currently learning how to learn programming;
 - 💞️ I’m looking to collaborate on nothing for now;
 - 📫 How to reach me kvothe1905 on Discord.
